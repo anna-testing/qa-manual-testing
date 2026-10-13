@@ -1,0 +1,1 @@
+[Экспортированная коллекция запросов JSON](https://www.icloud.com/iclouddrive/0fcRyfxAGV00TmdZvx32FXlqQ#JSONPetstory_Tests)
